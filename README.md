@@ -1,0 +1,2 @@
+# shahan
+I am Daniel, graduated and working in accounting but passionate about social media marketing. I own a few accounts with over 150 000 combined followers, a YouTube Channel with over a million views and have e-commerce generating over 5 figures per year. So far, I have helped over 1500+ satisfied customers growing their social media platforms. What are you waiting for? Contact me and see what I can do for you. 
